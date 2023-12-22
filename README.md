@@ -1,4 +1,4 @@
-👋 Hello, I'm @BrasilNet0
+👋 Hello!, I'm Brasil Neto
 
 👀 I'm interested in learning automation, website development and game development.
 
